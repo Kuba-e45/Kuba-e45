@@ -1,0 +1,6 @@
+- 👋 Hi, ich bin kuba_e45
+- 👀 Ich bin ein Discord Developer
+- 💞️ Mein Crush ist Núria
+- 📫 Email: jakubdebski599@gmail.com
+- 😄 Hobbys: Zocken / Coding / Auto Fahren
+- ⚡ Ziel: Erfolgreicher Disord Developer
